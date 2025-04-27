@@ -1,0 +1,1 @@
+# fit5225-assignment-2-a-modern-image-storage-on-the-cloud-1-synopsis-solved
